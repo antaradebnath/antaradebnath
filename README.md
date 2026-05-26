@@ -1,4 +1,4 @@
-# Hi, I'm [YOUR_NAME] 🎨 ⚡ 🤖
+# Hi, I'm Antara Deb Nath 🎨 ⚡ 🤖
 
 **Fine Arts & Sketch Artist | AI/ML Engineering Student | Frontend Developer**
 
